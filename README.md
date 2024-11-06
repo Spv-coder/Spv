@@ -21,7 +21,7 @@
 - - - -
 #### 联系真人客服（请在浏览器中打开）
 
-**:speech_balloon: [在线客服直达（分钟级回复）]([https://u.z8n.net/AHbQ0a](https://t.me/+Klm379xhaCQ5NmVl))**
+**:speech_balloon: [在线客服直达（分钟级回复）](https://t.me/+Klm379xhaCQ5NmVl)**
 
 **:e-mail: [邮件客服mailto:spvviphw666@gmail.com（分钟级回复）](mailto:spvviphw666@gmail.com)**
 - - - -
